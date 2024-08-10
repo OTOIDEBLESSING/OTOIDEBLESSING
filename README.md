@@ -1,9 +1,9 @@
-## Hi ! ##
-# Meet ## BLESSING OTOIDE,
+## 🤚Hi ! ##
+# Meet BLESSING OTOIDE,
 Your 
-## Virtual Assistant and ## Data Analyst, 
+# Virtual Assistant and Data Analyst, 
 I possess the expertise to revolutionize your businesses. I provide Administrative support, Digital marketing ,Data entry and analysis to business, entrepreneurs and professionals . With my expertise, you will gain more time and experience growth as well as achieve your goals.
-# My key skills:*
+# My key skills:
   • Administrative tasks: Data entry and document preparation, Email management, Calendar organization.
  • Social Media Management: Content creation and writing,Timely engagement, Advertising, Analytics.
  • Time management: Goal setting and getting, prioritization of tasks,task optimization.
