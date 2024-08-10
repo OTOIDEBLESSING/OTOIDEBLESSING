@@ -48,13 +48,13 @@ Social Media.
   # Are you ready.
   To take your business to the top, above your competitors.
   # Then
-  I invite you to hire me . 
-  Together we can make your dreams come true. 
-  Wait no further, contact me now to discuss how I can channel my skills to elevate your business.
+- I invite you to hire me . 
+- Together we can make your dreams come true. 
+- Wait no further, contact me now to discuss how I can channel my skills to elevate your business.
 - 📫 How to reach me:[LINKEDIN](https://www.linkedin.com/in/otoide-blessing-0186a6222)
-- 
+  
 - 😄 Pronouns: she/her
-- 
+  
 - ⚡ Fun fact: Am a data excited enthusiastic, Virtual Assistant and overall Techies
 
 <!---
