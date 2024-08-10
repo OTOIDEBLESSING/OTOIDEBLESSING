@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data 
 - 🌱 I’m currently learning Data analysis and working with Dahel Techies
 - 💞️ I’m looking to collaborate on wih data enthusiastics
-- 📫 How to reach me: 
+- 📫 How to reach me:[LINKEDIN](https://www.linkedin.com/in/otoide-blessing-0186a6222)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Am a data excited enthusiastic 
 
