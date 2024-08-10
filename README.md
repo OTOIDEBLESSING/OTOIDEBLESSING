@@ -5,10 +5,15 @@ Your
 I possess the expertise to revolutionize your businesses. I provide Administrative support, Digital marketing ,Data entry and analysis to business, entrepreneurs and professionals . With my expertise, you will gain more time and experience growth as well as achieve your goals.
 # My key skills:
   • Administrative tasks: Data entry and document preparation, Email management, Calendar organization.
+  
  • Social Media Management: Content creation and writing,Timely engagement, Advertising, Analytics.
+ 
  • Time management: Goal setting and getting, prioritization of tasks,task optimization.
- • Customer services: Excellent communication, Exceptional attention and problem solving as well as profounding resolution to conflicts
+ 
+ • Customer services: Excellent communication, Exceptional attention and problem solving as well as profounding resolution to conflicts.
+ 
  • Research and data analysis: Timely insights ,Data visualization and reporting
+ 
 • Communication: I'm very clear ,precise, concise and professional in writing, speaking and presentation. However, I make sure to ask questions regarding unclear data or information for better results or output
   # Benefit for hiring me:
 Confidently stating that hiring me will:
